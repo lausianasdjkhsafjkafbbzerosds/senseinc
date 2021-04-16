@@ -1,3 +1,3 @@
 #### for contact
 
-- Discord: [Sensei#0007](https://discord.com/users/765992016446226443)
+- Discord: [hateful#1337](https://discord.com/users/765992016446226443)
